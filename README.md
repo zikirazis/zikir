@@ -1,0 +1,2 @@
+# zikir
+aku seorang IT
